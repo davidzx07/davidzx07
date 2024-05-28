@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning T.I
 - 💞️ I’m looking to collaborate on casa
 - 📫 How to reach me  ronaldodavidlima@gmail.com
-- 😄 Pronouns: 
+- 😄 Pronouns: ronaldo
 - ⚡ Fun fact: 
 
 <!---
